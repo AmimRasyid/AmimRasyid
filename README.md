@@ -2,7 +2,7 @@
 
 ###
 
-<img align="right" height="150" src="https://tenor.com/view/love-love-you-vocaloid-len-gif-16164317001146678149"  />
+<img align="right" height="150" src="[https://tenor.com/view/love-love-you-vocaloid-len-gif-16164317001146678149](https://i.pinimg.com/originals/3f/a3/52/3fa352fb18e4998f157959dafb4dab80.gif)"  />
 
 ###
 
